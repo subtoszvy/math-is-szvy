@@ -1,1 +1,1 @@
-this is a really cool unblocked games site i made 👍
+Szvy Central but with a math page before it.
